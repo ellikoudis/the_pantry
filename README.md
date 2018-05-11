@@ -1,1 +1,1 @@
-GitHub Checkpoint
+Github Checkpoint
